@@ -1,0 +1,1 @@
+My freind Olimjons, Atdham, G'ayrat, Rustam, Og'abek.
